@@ -1,6 +1,6 @@
 # BearFromMars
 
-Welcome, and enjoy the content here. This website is for whatever I feel like, and personal info. 
+Welcome, and enjoy the content here. This website is for whatever I feel like, and personal info.\
 NOTE: THIS IS NOT A RESUME, I AM UNDER THE AGE OF MAJORITY IN THE UNITED STATES OF AMERICA
 
 ## Experience
