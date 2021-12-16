@@ -2,15 +2,7 @@
 
 lmao
 
-Pronouns:
+I make songs on Spotify
 
-  retar/ded\
-  samsung/refrigerator\
-  among/us\
-  stu/pid\
-  attack/helicopter\
-  mine/craft\
-  anno/ying\
-\
-I indentify as an idiot
+If you're part of Spotify yes, I am trying to claim my account.
 
