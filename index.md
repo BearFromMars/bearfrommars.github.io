@@ -1,8 +1,5 @@
 # BearFromMars
 
-lmao
+## lmao
 
-I make songs on Spotify
-
-If you're part of Spotify yes, I am trying to claim my account. scuffeddankness@gmail.com, Melchi Garfias for Spotify related things.
-
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=bearfrommars&count_private=true)](https://github.com/anuraghazra/github-readme-stats)
